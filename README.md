@@ -1,0 +1,1 @@
+Видео к коду: https://www.youtube.com/watch?v=k3mftKwpsD0&list=PLvTBThJr861xh3fCMf91Ip5_r6TdR15O9&index=8
